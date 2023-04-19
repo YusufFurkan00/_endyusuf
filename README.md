@@ -1,0 +1,2 @@
+# _endyusuf
+Doğrulanmış rozet 
